@@ -1,0 +1,1 @@
+Git er skikkelig nyttig, hvis du driter i alt annet.
